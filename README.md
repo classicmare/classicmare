@@ -1,10 +1,12 @@
 <br>
 <p align="center">      
-      bagel / dess <br> <sub>infp 2w3 269 so/sx sangphleg RLUAI</sub> <br>
-      <a href="https://rentry.co/269">rentry/pt info</a> <br>
-      <img src="https://files.catbox.moe/qbdo6e.gif"> 
+      bagel / sans <br> <sub>infp 2w3 so269</sub> <br>
+      <a href="https://rentry.co">wip</a> <br>
+      <img src="https://files.catbox.moe/a87slg.png"> 
       <br>
-                        <img src="https://komarev.com/ghpvc/?username=butcherys&label=🌻⁠&color=grey">
+                        <img src="https://komarev.com/ghpvc/?username=butcherys&label=🐙🍅⁠&color=grey">
+      <br>
+      <sub>classic sans x nightmare fan</sub>
 <br>
 </p>
 <br>
