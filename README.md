@@ -1,6 +1,6 @@
 <br>
 <p align="center">      
-      bagel / sans <br> <sub>infp 2w3 so269</sub> <br>
+      bagel / sans <br> <sub>infp 4w5 so469</sub> <br>
       <a href="https://rentry.co">wip</a> <br>
       <img src="https://files.catbox.moe/a87slg.png"> 
       <br>
