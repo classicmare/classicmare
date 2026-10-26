@@ -1,6 +1,6 @@
 <br>
 <p align="center">      
-      bagel <br> <sub>infp 4w5 so469</sub> <br>
+      bagel <br> <sub>infp 4w5 so/sx 469 phlegmel</sub> <br>
       <a href="https://rentry.co">wip</a> <br>
       <img src="https://files.catbox.moe/9bquwm.png"> 
       <br>
